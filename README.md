@@ -1,4 +1,4 @@
-### ϑ𐑞\
+### ϑ𐑞
 ### bospocketwatch
 𑁯<img width="20" height="20" alt="b42445ef" src="https://github.com/user-attachments/assets/0a188569-e781-40d0-97ba-193c6125f947" />﹒ bo ⠀<img width="20" height="20" alt="watch4" src="https://github.com/user-attachments/assets/2f935f8f-b692-4cc9-90f1-370beb533bef" />⠀ **17**yr the**y/xe**
 > en**g/urdu** ˶ #1**bo**rico**fan**
