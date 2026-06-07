@@ -4,6 +4,6 @@ bo ⠀[<img width="20" height="20" alt="image" src="https://github.com/user-atta
  
 <img width="400" height="200" alt="boricobanner4" src="https://github.com/user-attachments/assets/0100d843-2d27-4832-b21e-97ce5f1f01c5" />
 
-#ponytown info
+### ponytown info
 w2i & c+h ⠀<img width="20" height="20" alt="train3" src="https://github.com/user-attachments/assets/5b098eec-a543-4fbf-8054-304ea28fa28e" />⠀i ❤︎ regi/scouts
 > **dni if proship/fic**
