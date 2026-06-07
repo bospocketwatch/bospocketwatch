@@ -6,4 +6,5 @@ bo ⠀<img width="20" height="20" alt="watch4" src="https://github.com/user-atta
 
 ### ponytown info
 w2i & c+h ⠀<img width="20" height="20" alt="train3" src="https://github.com/user-attachments/assets/5b098eec-a543-4fbf-8054-304ea28fa28e" />⠀i ❤︎ reg**i/scouts**
-> **dni if proship/fic**
+> **dni if proship/fic**\
+<sub>will add & edit more later<sub/>
