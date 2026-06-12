@@ -11,4 +11,4 @@
 > <img width="20" height="20" alt="skull11" src="https://github.com/user-attachments/assets/51b7e47d-5908-441a-afab-d90d7c31ebba" />**𓈒﹒ dni if proship/fic ﹒ミ**\
 <sub>◡◡﹒ will add & edit more later ﹒<img width="20" height="20" alt="cat85" src="https://github.com/user-attachments/assets/f9bcd80e-d42a-4c60-9c8d-ae5c38b69dd3" /> 𓂃<sub/>
   
-<img width="1015" height="987" alt="final-0001" src="https://github.com/user-attachments/assets/20703f5b-bf57-44d8-b131-59ce2642d002" />
+<img width="507" height="493" alt="final-0001" src="https://github.com/user-attachments/assets/20703f5b-bf57-44d8-b131-59ce2642d002" />
